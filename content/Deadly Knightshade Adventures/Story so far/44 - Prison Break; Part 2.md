@@ -1,0 +1,9 @@
+---
+tags: oota/session-notes
+---
+
+# Prison Break; Part 2
+
+The party picked up still at the prison, meeting up with the other inmates after leaving the royal quarters. We discussed what to do next, ultimately making the decision to go towards the lift while 4 ([[Gildo Stormborn|Gildo]], [[Quackity]], [[Prince Dendril]], and [[Edith]]) stayed behind to lower it. Everyone else was successfully lowered, but then an injured Vrock (demon) crashed down next to them. The noobz were terrified but [[Tholraak]] instinctively bit it to death. The 4 still at the top tried to go towards the waterfall but were stopped by QB [[Ilvara]] (queen bitch) and her lover [[Shore]]. [[Waukeen Phoenix]] tried to steal her wand but failed and we left it for dead. [[Edith]] offered to stay behind to fend them off while the last of us tried to repel down the lift rope. [[Gildo Stormborn|Gildo]] fell halfway and [[Quackity]] was fine. We got ready to leave when [[Edith]] came flying down, not in great shape.   
+We took off through the west side of the cave. Everyone was assigned a companion. [[Gildo Stormborn|Gildo]]/[[Prince Dendril]], [[Quackity]]/[[Edith]], [[Lester Charlesworth|Lester]]/[[JimJar]], [[Kadulus]]/[[Bupido]], and [[Tholraak]]/[[Sarith]]. [[Stool]] made a home in [[Quackity]]'s bag and [[Shushar The Awoken]] navigated. We began traveling. With a total of 48 miles between us and [[Sloobledop]] we could either travel slow (4mi), normal (6mi), or fast (8mi) every day. Slow is adv on foraging, normal is regular foraging, and fast is no foraging.  
+We mainly travel at a fast pace, and sometimes normal pace. Important interactions included *flashbang crystals*, a trader who we bought rations off of, and 3 \[things\] that we killed. Along the way, we noticed that [[Prince Dendril]]'s story wasn't always consistent. Just as we approached [[Sloobledop]], a bunch of fish people dropped down and we ended on that cliffhanger

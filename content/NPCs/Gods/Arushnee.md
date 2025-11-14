@@ -1,5 +1,0 @@
----
-tags: oota/npc/god
----
-
-

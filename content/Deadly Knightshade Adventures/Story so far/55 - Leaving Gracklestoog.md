@@ -1,0 +1,9 @@
+---
+tags: oota/session-notes
+---
+
+# Leaving [[Gracklestoog]]
+
+The party woke up at the inn and started getting ready for the expedition. We saw 3 carts in front of Blackskull HQ, went down and met [[Lieutenant Humperdinck]], who was going to lead. We realized we had to make sure Luna and [[Globagool]] were accommodated, spent waytoofuckinglong coming up with ideas, eventually talked to the blob scientist who sold us a blob cart that could carry [[Globagool]] and we would hide [[Luna]] behind him.   
+We left for our travels, which took a week. In the meantime, [[Tholraak]] learned about magic from [[Kadulus]], [[Lester Charlesworth|Lester]], and [[Gildo Stormborn|Gildo]]. [[Gildo Stormborn|Gildo]] discovered [[Kadulus]] had an evil staff with the head of a snake at the top. No one did anything about it even though it definitely seemed evil. We got to the spider web bridge where [[Lieutenant Humperdinck|Humperdinck]] was no help in giving advice for how to cross. He pretty much said "go carefully". After telling him to eat a dick, two halflings came out of nowhere surfing on the webs. They said for 2gp per person per day they could get us across safely. Everyone thought that was outrageous but [[Tholraak]] had the moneys so we agreed.   
+Setting out on the webs, we have been coming across various monsters including spiders, face-suckers, and a mimic chest. It became apparent very quickly that the webs will break if someone even mentions the word fire. [[Lester Charlesworth|Lester]] found a bundle of webs that contained the dying [[Fargus Rumblefoot]], a fellow acolyte of [[Ra]] who said he was down here "looking for Ra" . With his dying breath he gave[[Lester Charlesworth|Lester]]the advice "listen for ALL that call for help".

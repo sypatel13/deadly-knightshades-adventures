@@ -1,0 +1,8 @@
+---
+tags: oota/session-notes
+---
+
+# Investigating the Mushroom Castle
+
+Just as we had slain the pupa, we began hearing marching in the distance coming from the large mushroom. The thing we just killed rose from the ground, saying "oh, it's time\!" in a non-hostile manner. The weird pupa thing continued to go off about the wedding while we defensively and slowly backed away. The marching turned out to be a ton of michonids. 16 total, 12 normal, 4 chungus. They made a formation similar to that of a wedding rehearsal. The pupa announced the wedding between [[Zuggtmgoy]] and [[Araumycos]]. We all got a vision of the "bridesmaids" taking care of a spore-covered thing in a wedding dress, assumed to be the aforementioned fungal demon lord. Everyone but [[Lester Charlesworth|Lester]] was fine coming out of the vision. The michonids began retreating to the giant mushroom.   
+[[Gildo Stormborn|Gildo]] and [[Kadulus]] stuck back while [[Quackity]] and [[Lester Charlesworth|Lester]] snuck towards the giant mushroom. With some whack hand signals, they yeeted down a hill, ramming into a pod at the bottom and getting mentally scarred from the horror of the undead thing that jumped out and died in front of them, resulting in [[Lester Charlesworth|Lester]] thinking he was a fish and [[Quackity]] worshiping a general god. [[Gildo Stormborn|Gildo]] and [[Kadulus]] decided to go help the traumatized children. We were still \~100ft from The Mushroom Castle and could see the wedding procession still marching. A bunch of other humanoid figures were dancing around the castle, which turned out to be decaying people of various races.
